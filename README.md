@@ -1,1 +1,2 @@
-# hunnid.me (random shit)
+# pasted
+ayo.so/lngthnhan
